@@ -1,1 +1,0 @@
-# tatyanakoryakina.github.io
